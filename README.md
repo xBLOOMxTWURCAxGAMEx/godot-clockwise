@@ -1,0 +1,1 @@
+bloomek jest gejem
