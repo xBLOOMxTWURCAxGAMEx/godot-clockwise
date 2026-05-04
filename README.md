@@ -1,1 +1,1 @@
-bloomek jest gejem
+widelcuje
